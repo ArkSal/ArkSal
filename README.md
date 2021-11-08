@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ArkSal
+- 👋 Hi, I’m Arkadiusz
 
 - 👀 I’m interested in testing topics
 - 🌱 I’m currently learning everything 🤣
